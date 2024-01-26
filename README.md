@@ -1,0 +1,1 @@
+Shore Mariner® has long been one of New Zealand's most popular seafood brands. Shore Foods began as a pioneer in the imported seafood industry in the 1980s, innovating with proprietary items from across the world that were new to New Zealand. In 1993, Shore Foods bought Mariner Foods Ltd, which became Shore Mariner®.
